@@ -1,4 +1,4 @@
-# 
+# ultimate pump.fun sniper bot | MEV-detection + multi-chain-support offers the most advanced pump.fun sniper bot, with MEV-detection and multi-chain-support. Ideal for professional
 
 
 
